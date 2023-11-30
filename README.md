@@ -6,3 +6,6 @@
 If you have any concerns or suggestions feel free to connect with me on my [Linkedin](https://www.linkedin.com/in/dakshmathur2604/).
 
 I hope that this repository is maintained and modified according to the needs of the students so please share this with your classmates and improve it for easier access to Information
+
+
+Mega Cloud link for Books and Notes [mega.nz](https://mega.nz/folder/Jr1VnKbT#y-DRNWNWnbEBUZOoy8GtFg).
