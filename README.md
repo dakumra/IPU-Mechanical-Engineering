@@ -1,5 +1,5 @@
-# MAIT-Mechanical Engineering
- Study materials and relative content for the mechanical students of MAIT
+# IPU-Mechanical Engineering
+ Study materials and relative content for the mechanical students of IPU
 
 #### Hi, I am Daksh and right now a Third year mechanical student (ME) in MAIT. I am creating this repository for all ME/MAE students so there's no lack of information and atleast the "Kaha se karna hai" work is minimised 
 
