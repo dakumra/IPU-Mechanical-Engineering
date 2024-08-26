@@ -11,3 +11,7 @@ I hope that this repository is maintained and modified according to the needs of
 Drop any study material here and i'll arrange it and upload it to the mega cloud [here (mega.nz)](https://mega.nz/filerequest/z0TjpG1HO5k)
 
 Mega Cloud link for Books and Notes [mega.nz](https://mega.nz/folder/Jr1VnKbT#y-DRNWNWnbEBUZOoy8GtFg).
+
+I'd also like Everyone (Juniors/Seniors/Alumnus) to stay connected so here are some social links
+
+[Whatsapp](https://chat.whatsapp.com/GxsIlmTyTFnKX6dvs78NM5)
