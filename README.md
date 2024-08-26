@@ -1,7 +1,7 @@
 # IPU-Mechanical Engineering
  Study materials and relative content for the mechanical students of IPU
 
-#### Hi, I am Daksh and right now a Third year mechanical student (ME) in MAIT. I am creating this repository for all ME/MAE students so there's no lack of information and atleast the "Kaha se karna hai" work is minimised 
+#### Hi, I am Daksh and right now a Fourth year mechanical student (ME) in MAIT. I am creating this repository for all ME/MAE students so there's no lack of information and atleast the "Kaha se karna hai" work is minimised 
 
 If you have any concerns or suggestions feel free to connect with me on dakshmathur2604@protonmail.com
 
