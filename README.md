@@ -15,4 +15,7 @@ Mega Cloud link for Books and Notes [mega.nz](https://mega.nz/folder/Jr1VnKbT#y-
 I'd also like Everyone (Juniors/Seniors/Alumnus) to stay connected so here are some social links
 
 [Whatsapp](https://chat.whatsapp.com/GxsIlmTyTFnKX6dvs78NM5)
+
+
+
 [Discord](https://discord.gg/XbrYaEaxRK)
